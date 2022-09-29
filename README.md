@@ -1,1 +1,1 @@
-# leaked or cracked scripts for da hood my dis is 47#7398
+# leaked or cracked scripts for da hood my dis is Nova#7398
